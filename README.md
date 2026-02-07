@@ -1,3 +1,2 @@
-# clankerbot
-random stuff
-made with chatgpt go cry abt it if u want idrc
+WARNING:
+ts made by ai, btw the injector might get u banned off online games if you use it
